@@ -18,7 +18,6 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/muhammad-fauzi-azmi-6b40633a/](https://www.linkedin.com/in/muhammad-fauzi-azmi-6b40633a/)
 
-##- ⚡ Fun fact **Cat Lover, Martial Arts, Gamers**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
